@@ -141,7 +141,7 @@ Transform your Telegram marketing strategy with our **professional-grade** membe
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/7/7e/Gmail_icon_%282020%29.svg" width="20" height="20"> **Email:** redaelbettioui@gmail.com
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/c/ca/LinkedIn_logo_initials.png" width="20" height="20"> **LinkedIn:** [Reda EL BETTIOUI 🇵🇸](https://linkedin.com/in/redaelbettioui)
+<img src="https://upload.wikimedia.org/wikipedia/commons/c/ca/LinkedIn_logo_initials.png" width="20" height="20"> **LinkedIn:** [Reda EL BETTIOUI 🇵🇸](https://www.linkedin.com/in/reda-el-bettioui/)
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/8/82/Telegram_logo.svg" width="20" height="20"> **Telegram:** [https://t.me/reeeeeda](https://t.me/reeeeeda)
 
