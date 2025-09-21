@@ -148,6 +148,6 @@ Transform your Telegram marketing strategy with our **professional-grade** membe
 <img src="https://upload.wikimedia.org/wikipedia/commons/9/91/Octicons-mark-github.svg" width="20" height="20"> **GitHub:** [Visit Our Repository](https://github.com/redaelbettioui)
 
 
-*© 2024 - Professional Telegram Growth Solutions. Built for serious marketers.*
+*© 2025 - Professional Telegram Growth Solutions. Built for serious marketers.*
 
 </div>
